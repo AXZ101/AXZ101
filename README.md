@@ -1,7 +1,4 @@
-- 👋 Hi, I’m @AXZ101
-- 👀 I’m interested in trying to code 
-- 🌱 I’m currently learning about nothing 
-- 💞️ I’m looking to collaborate on nothing yet 
+ble ble ble uhhhhh ble ble yo quero taco bell
 - 📫 How to reach me email: azizmlaouah61@gmail.com
 
 <!---
